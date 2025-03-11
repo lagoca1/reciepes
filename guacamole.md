@@ -3,10 +3,10 @@
 ## Ingredients
 
 * avocado
-* lemon
+* lime
 * salt
 
 
-### Intructions
+## Intructions
 
 
